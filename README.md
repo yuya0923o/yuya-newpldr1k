@@ -1,1 +1,0 @@
-# yuya-newpldr1k
